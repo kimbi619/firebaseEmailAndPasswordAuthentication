@@ -13,4 +13,4 @@ Please subscribe to my channel as it helps me develope this and creates videos l
 Thank you
 
 ## Youtube
-[YouTube]([Youtube](https://www.youtube.com/watch?v=JWMWWHy66yY&lc=UgzrPY808pcvGCZHibx4AaABAg)https://www.youtube.com/watch?v=JWMWWHy66yY&lc=UgzrPY808pcvGCZHibx4AaABAg)
+[youtube/@rising_tide](https://www.youtube.com/watch?v=JWMWWHy66yY&lc=UgzrPY808pcvGCZHibx4AaABAg)
